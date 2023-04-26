@@ -1,1 +1,1 @@
-witaj na mojej storne
+witaj na mojej stornie
