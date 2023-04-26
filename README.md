@@ -1,1 +1,0 @@
-witaj na mojej stornie
